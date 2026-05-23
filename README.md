@@ -1,0 +1,1 @@
+Cooperative learning makes abstract economic concepts concrete by engaging students in shared inquiry and distributed responsibility. The interactive infographic provides immediate visual and textual scaffolding: animations clarify the difference between movements along curves and curve shifts.
